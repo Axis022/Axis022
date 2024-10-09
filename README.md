@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with new people i meet!
 - 📫 How to reach me: Through discord or here on github
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I love fotball
+- ⚡ Fun fact: Ive supported Liverpool since 2015
 <!---
 Axis022/Axis022 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
